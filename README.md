@@ -15,7 +15,7 @@ From The New Yorker profile of Adam Driver in 2019:
 
 With a birthday of November 19, 1983, Driver was 17 years old at the time of the attacks. 
 
-He has since starred in The Report, a film highlighting the United States Military's campaign of torture in the wars post-9/11.[[Reference]](https://www.bbc.com/news/av/entertainment-arts-49826297)
+He has since starred in The Report, a film highly critical of the United States Military's campaign of torture in the wars post-9/11.[[Reference]](https://www.bbc.com/news/av/entertainment-arts-49826297)
 
 ## Claim: Adam Driver improvised a notoriously racist line in the movie BlacKkKlansman 
 
