@@ -2,6 +2,15 @@
 
 Is something wrong? Send a pull request with evidence. 
 
+## Claim: Adam Driver joined the Marine Corps to get retribution for 9/11
+
+**Fact Check:** Partially true; lacks context 
+
+**Info:** 
+From The New Yorker profile of Adam Driver in 2019:
+
+"After 9/11, he found himself filled with a desire for retribution, although he wasn’t sure against what or whom. “It wasn’t against Muslims,” he said. “It was: We were attacked. I want to fight for my country against whoever that is.” His stepfather, a Baptist minister, had given him a brochure for the Marines, which he’d thrown in the trash. But now he reconsidered."[[Reference]](https://www.newyorker.com/magazine/2019/10/28/adam-driver-the-original-man)
+
 ## Claim: Adam Driver improvised a notoriously racist line in the movie BlacKkKlansman 
 
 **Fact Check:** False
@@ -13,7 +22,7 @@ Director Spike Lee has spoken at length about how uncomfortable white actors wer
 
 ## Claim: Adam Driver’s wife, Joanne Tucker, comes from a Bermudan slave-owning family
 
-**Fact Check:** Possibly True; lacks context
+**Fact Check:** Possibly true; lacks context
 
 **Info:** Joanne Tucker is a member of the Tucker family of Bermuda through her paternal line.
 
