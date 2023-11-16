@@ -36,7 +36,7 @@ There is no evidence to support the claim that the couple was married on any pla
 
 Missus-Misanthrope’s subsequent comments on Reddit included extensive name-calling directed at Tucker. The original threads’ comments are now deleted.[[Reference]](https://www.reddit.com/r/HobbyDrama/comments/ji50tz/adam_driver_standom_adam_driver_makes_fun_of_a/?rdt=35038)
 
-When Adam Driver performed on Broadway in Spring 2019, the same woman went to The Hudson Theatre’s stage door and successfully handed him the wood burning of his family dog. The clip of the interaction, which appeared generally friendly albeit brief, circulated widely on Reddit, Tumblr, and Twitter after the woman posted the clip under at least one different username.[6] 
+When Adam Driver performed on Broadway in Spring 2019, the same woman went to The Hudson Theatre’s stage door and successfully handed him the wood burning of his family dog. The clip of the interaction, which appeared generally friendly albeit brief, circulated widely on Reddit, Tumblr, and Twitter after the woman posted the clip under at least one different username.[[Reference]](https://i.imgur.com/1IFxkgL.mp4) 
 
 Driver has spoken about, described, and been videoed/photographed with his family dog at length, including in at least three published photoshoot interviews.[[Reference]](https://www.youtube.com/watch?v=zvZZyolTF4g)[[Reference]](https://i.pinimg.com/originals/e3/7a/6a/e37a6a06bb5e1ce5083ea617247b3e13.jpg)[[Reference]](https://www.youtube.com/watch?t=1s&v=R9bhiFRlGZI)
 
