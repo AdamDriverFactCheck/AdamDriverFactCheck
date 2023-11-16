@@ -2,6 +2,15 @@
 
 Is something wrong? Send a pull request with evidence. 
 
+## Claim: Adam Driver improvised a notoriously racist line in the movie BlacKkKlansman 
+
+**Fact Check:** False
+
+**Info:**
+The line, in which Driver's character screams that someone is a "spearchucker," is present in the film script.[[Reference]](https://thescriptlab.com/wp-content/uploads/scripts/BlackKKlansman.pdf)
+
+Director Spike Lee has spoken at length about how uncomfortable white actors were saying the racist lines in his film.[[Reference]](https://www.nzherald.co.nz/entertainment/spike-lee-blackkklansmans-white-actors-had-problems-saying-the-n-word/MS3PPMECS72JBG7FFUNIE3VQYU/) 
+
 ## Claim: Adam Driver’s wife, Joanne Tucker, comes from a Bermudan slave-owning family
 
 **Fact Check:** Possibly True; lacks context
