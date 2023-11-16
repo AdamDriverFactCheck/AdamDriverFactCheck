@@ -13,6 +13,10 @@ From The New Yorker profile of Adam Driver in 2019:
 
 "After 9/11, he found himself filled with a desire for retribution, although he wasn’t sure against what or whom. “It wasn’t against Muslims,” he said. “It was: We were attacked. I want to fight for my country against whoever that is.” His stepfather, a Baptist minister, had given him a brochure for the Marines, which he’d thrown in the trash. But now he reconsidered."[[Reference]](https://www.newyorker.com/magazine/2019/10/28/adam-driver-the-original-man)
 
+With a birthday of November 19, 1983, Driver was 17 years old at the time of the attacks. 
+
+He has since starred in The Report, a film highlighting the United States Military's campaign of torture in the wars post-9/11.[[Reference]](https://www.bbc.com/news/av/entertainment-arts-49826297)
+
 ## Claim: Adam Driver improvised a notoriously racist line in the movie BlacKkKlansman 
 
 **Fact Check:** False
