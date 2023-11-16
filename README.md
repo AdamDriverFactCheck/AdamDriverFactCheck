@@ -15,9 +15,9 @@ From The New Yorker profile of Adam Driver in 2019:
 
 With a birthday of November 19, 1983, Driver was 17 years old at the time of the attacks. 
 
-He has since starred in The Report, a film highly critical of the United States Military's campaign of torture in the wars post-9/11.[[Reference]](https://www.bbc.com/news/av/entertainment-arts-49826297)
+He has since starred in *The Report*, a film highly critical of the United States Military's campaign of torture in the wars post-9/11.[[Reference]](https://www.bbc.com/news/av/entertainment-arts-49826297)
 
-## Claim: Adam Driver improvised a notoriously racist line in the movie BlacKkKlansman 
+## Claim: Adam Driver improvised a notoriously racist line in the movie *BlacKkKlansman*
 
 **Fact Check:** False
 
@@ -64,7 +64,7 @@ Jeffrey Epstein was fired from The Dalton School in 1976.[[Reference]](https://w
 
 There is no evidence that Joanne Tucker nor Adam Driver ever met Jeffrey Epstein. 
 
-Adam Driver played 'Jeffrey Epstein In Hell' on Saturday Night Live (SNL) in 2020.[[Reference]](https://variety.com/2020/tv/news/saturday-night-live-adam-driver-jeffrey-epstein-jon-lovitz-alan-dershowitz-hell-first-show-2020-watch-1203480476/)
+Adam Driver played 'Jeffrey Epstein In Hell' on *Saturday Night Live* (SNL) in 2020.[[Reference]](https://variety.com/2020/tv/news/saturday-night-live-adam-driver-jeffrey-epstein-jon-lovitz-alan-dershowitz-hell-first-show-2020-watch-1203480476/)
 
 ## Claim: Adam Driver called a gift a fan gave him ‘creepy’
 
@@ -80,7 +80,7 @@ Driver has spoken about, described, and been videoed/photographed with his famil
 
 When a New Yorker profile of Driver was published later in the year, he is quoted as saying, “This one woman who has been harassing my wife came to the show and gave me a creepy wood carving that she made of my dog.”[[Reference]](https://www.newyorker.com/magazine/2019/10/28/adam-driver-the-original-man)
 
-## Claim: Adam Driver assaulted an actress with a chair during the filming of The Man Who Killed Don Quixote
+## Claim: Adam Driver assaulted an actress with a chair during the filming of *The Man Who Killed Don Quixote*
 
 **Fact Check:** False
 
