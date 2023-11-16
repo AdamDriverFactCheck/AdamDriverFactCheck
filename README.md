@@ -30,6 +30,18 @@ The exact location of the wedding ceremony and/or reception are unconfirmed.
 
 There is no evidence to support the claim that the couple was married on any plantation, nor at any venue that the Tucker family owns. 
 
+## Claim: Adam Driver's wife, Joanne Tucker, met Jeffrey Epstein while attending The Dalton School
+
+**Fact Check:** False
+
+**Info:** With a birthdate of 1982 or 1983, Joanne Tucker would have attended The Dalton School during the late 1980s and/or 1990s. 
+
+Jeffrey Epstein was fired from The Dalton School in 1976.[[Reference]](https://www.nytimes.com/2019/07/12/nyregion/jeffrey-epstein-dalton-teacher.html)
+
+There is no evidence that Joanne Tucker nor Adam Driver ever met Jeffrey Epstein. 
+
+Adam Driver played 'Jeffrey Epstein In Hell' on Saturday Night Live (SNL) in 2020.[[Reference]](https://variety.com/2020/tv/news/saturday-night-live-adam-driver-jeffrey-epstein-jon-lovitz-alan-dershowitz-hell-first-show-2020-watch-1203480476/)
+
 ## Claim: Adam Driver called a gift a fan gave him ‘creepy’
 
 **Fact Check:** True; lacks context
