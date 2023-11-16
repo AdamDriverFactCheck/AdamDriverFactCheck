@@ -42,7 +42,7 @@ When Adam Driver performed on Broadway in Spring 2019, the same woman went to Th
 
 Driver has spoken about, described, and been videoed/photographed with his family dog at length, including in at least three published photoshoot interviews.[[Reference]](https://www.youtube.com/watch?v=zvZZyolTF4g) [[Reference]](https://i.pinimg.com/originals/e3/7a/6a/e37a6a06bb5e1ce5083ea617247b3e13.jpg) [[Reference]](https://www.youtube.com/watch?t=1s&v=R9bhiFRlGZI)
 
-When a New Yorker profile of Driver was published later in the year, he is quoted as saying, “This one woman who has been harassing my wife came to the show and gave me a creepy wood carving that she made of my dog.”[[Reference]](https://www.newyorker.com/magazine/2019/10/28/adam-driver-the-original-man) Neither the hateful comments the woman had written about his wife, nor the woman’s prior encounter with his wife, were not mentioned directly in the New Yorker profile. Nevertheless, it appears Driver had either been informed of the woman’s comments online or that Tucker recognized the wood carving (or both.) 
+When a New Yorker profile of Driver was published later in the year, he is quoted as saying, “This one woman who has been harassing my wife came to the show and gave me a creepy wood carving that she made of my dog.”[[Reference]](https://www.newyorker.com/magazine/2019/10/28/adam-driver-the-original-man)
 
 ## Claim: Adam Driver assaulted an actress with a chair during the filming of The Man Who Killed Don Quixote
 
