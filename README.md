@@ -2,6 +2,8 @@
 
 Is something wrong? Send a pull request with evidence. 
 
+***Are you here because someone claimed Adam Driver said a particular thing about the United States military or foreign policy?*** Stay tuned for a deep dive into his interviews and a compilation of both the positive and negative things he's said about the military. 
+
 ## Claim: Adam Driver joined the Marine Corps to get retribution for 9/11
 
 **Fact Check:** Partially true; lacks context 
